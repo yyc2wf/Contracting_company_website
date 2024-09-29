@@ -1,1 +1,1 @@
-# Contracting_company_website
+Name of the company: Oshmel contract
